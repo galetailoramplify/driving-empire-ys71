@@ -1,4 +1,4 @@
-#  
+#  re:rangers x Script advanced is the best re:rangers x Script, featuring anti-ban and auto-upgrade. Safe and powerful for all your needs.
 
 
 
